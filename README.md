@@ -1,6 +1,5 @@
 柠檬导航最新网址发布页：
-柠檬导航最新地址：https://d6gdh.xyz/d6g
-柠檬导航永久地址：https://d6gdh.com/d6g
+柠檬导航永久地址：[https://www.shenmidao.cc/shenmi/](https://www.shenmidao.cc/shenmi/)
 找不到最新地址，请发邮件di6gan123@gmail.com
 收藏本站发布页，永不迷路。
 柠檬导航导航最新网址发布页https://dizi10.github.io/</br>
